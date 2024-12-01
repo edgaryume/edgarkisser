@@ -1,4 +1,8 @@
 ## ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
+
+![](https://komarev.com/ghpvc/?username=edgarkisser)
+
+
 Hello !! Here's a more better intro, so hii! I'm Kinsley. On Ponytown you'll probably see me most either sitting by myself observing the conversations around me, or messing around with my friends probably on vc!! 
 
 More on myself in  general though I'm a ririko, which is a term in the "yumeship" community, you can also say "selfship" ririko means that I take my relationship with Edgar Valden seriously! (as in i see myself in a relationship with him) I'm nonsharing. Don't worry I'm not delusional or anything like that, I know he's not real and purely a fictional character !! I just think of him as my lover as I personally don't like the idea of real life relationships and he fills the void and provides the same comfort that a lover would in every way, he makes me more happy than anything on this earth could, I see no wrong in that as he makes my life worth living.
@@ -14,6 +18,8 @@ Games I like are Identity V (Identity V is the game Edgar is from) Genshin (I do
 as a reminder though, I'm 18, an adult, so please don't be... weird around me, if you're a minor... thanks
 
 ⋆꙳•̩̩͙❅*̩̩͙‧‧͙*̩̩͙❆ ͙͛ ˚₊⋆
+
+
 <!--
 **edgarkisser/edgarkisser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
