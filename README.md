@@ -12,6 +12,8 @@ I'm a big fan of watching true crime documentaries, the horror genre and drawing
 Games I like are Identity V (Identity V is the game Edgar is from) Genshin (I don't support the developers don't worry! I just like the game) Stardew Valley, Project Sekai, Bandori, Pokémon and Roblox !!
 
 as a reminder though, I'm 18, an adult, so please don't be... weird around me, if you're a minor... thanks
+
+⋆꙳•̩̩͙❅*̩̩͙‧‧͙*̩̩͙❆ ͙͛ ˚₊⋆
 <!--
 **edgarkisser/edgarkisser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
