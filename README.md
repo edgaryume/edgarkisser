@@ -9,7 +9,7 @@ Anyways I love anything related to snow, its always been my biggest dream to see
 
 I'm a big fan of watching true crime documentaries, the horror genre and drawing!! I also have a huge passion for writing. I'm actually working on a rpg horror game! :]
 
-Games I like are Identity V (Identity V is the game Edgar is from) Genshin (I don't support the developers don't worry! I just like the game) Stardew Valley, Pokémon and Roblox !!
+Games I like are Identity V (Identity V is the game Edgar is from) Genshin (I don't support the developers don't worry! I just like the game) Stardew Valley, Project Sekai, Bandori, Pokémon and Roblox !!
 
 as a reminder though, I'm 18, an adult, so please don't be... weird around me, if you're a minor... thanks
 <!--
